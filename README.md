@@ -1,1 +1,5 @@
-Hey! This is the README page. You shouldn't be getting this.
+Welcome to Merhej Studios!
+
+My name is Muhammad Iyad Merhej, I am a Syrian writer and illustrator specializing in fantasy, realism, and science fiction. I post content, sell products, and offer services related to literature and art.
+
+Feel free to check my website or contact me. Looking forward to hearing from you!
