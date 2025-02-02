@@ -4,6 +4,6 @@ My name is Muhammad Iyad Merhej, I am a Syrian writer and illustrator specializi
 
 I post content, sell products, and offer services related to literature and art.
 
-Feel free to view my work on my website and to contact me on my email.
+Feel free to view my work and contact me.
 
 Looking forward to hearing from you soon!
