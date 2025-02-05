@@ -1,9 +1,7 @@
 Welcome to Merhej Studios!
 
-My name is Muhammad Iyad Merhej, I am a Syrian writer and illustrator specializing in fantasy, realism, and science fiction.
+We post content, sell products, and offer services related to literature, art, and design.
 
-I post content, sell products, and offer services related to literature and art.
-
-Feel free to view my work and contact me.
+Feel free to visit our website and contact us.
 
 Looking forward to hearing from you soon!
