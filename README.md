@@ -1,6 +1,6 @@
 Welcome to Merhej Studios!
 
-We post content, offer services, and sell products related to art and literature.
+We are eclectic entertainment providers posting content, offering services, and selling products related to art and literature.
 
 Feel free to visit our website and contact us.
 
