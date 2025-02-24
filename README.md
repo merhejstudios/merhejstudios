@@ -1,5 +1,5 @@
-Welcome to Merhej Studios!
+Welcome to Merhej Studios - The Home of Universal Imagination.
 
-We are eclectic entertainment providers posting content, offering services, and selling products related to literature and art.
+We create immersive, globally inspired literature, art, and multimedia experiences for mature audiences who seek intellectual depth and emotional resonance.
 
-Visit our website to find out more!
+Visit our website to discover more!
